@@ -1,4 +1,5 @@
 baseURL = 'http://example.org/'
 languageCode = 'nl'
 title = 'Bijbelstudie'
+theme = "basic"
 pluralizelisttitles = 'false'
