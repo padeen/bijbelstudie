@@ -3,19 +3,23 @@
 @tailwind utilities;
 
 @layer base {
+  .header-text {
+    @apply mb-5 text-4xl font-semibold text-sky-900;
+  }
+
   h1 {
-    @apply mb-5 text-4xl font-semibold;
+    @apply mb-5 py-1.5 text-3xl font-semibold text-sky-900;
   }
 
   h2 {
-    @apply mb-5 text-2xl font-semibold;
-  }
-
-  li {
-    @apply mb-1;
+    @apply mb-5 bg-sky-900 py-1.5 pl-2 text-xl font-semibold text-white md:pl-3.5;
   }
 
   p {
-    @apply my-3.5;
+    @apply my-4;
+  }
+
+  strong {
+    @apply text-sky-900;
   }
 }

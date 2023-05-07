@@ -20,7 +20,7 @@ Ik aanvaard de inhoud van de Bijbel als het woord van Jehova. Als ik ontdek dat 
 die beinvloed zijn door de huidige tijdsgeest, afwijken van wat er in de Bijbel staat dan werk ik eraan om mijn
 opvattingen en overtuigingen in lijn te brengen met wat er in de Bijbel staat.
 
-### 4. De Bijbel kan je vragen beantwoorden
+## 4. De Bijbel kan je vragen beantwoorden
 
 **Bekijk de VIDEO**
 
@@ -39,7 +39,7 @@ _Welke vragen heb je waar de Bijbel misschien antwoord op geeft?_
 
 In de bijbel vind ik hoe tijdens mijn leven Jehova's goedkeuring kan ontvangen.
 
-### 5. Bijbellezen kan leuk zijn
+## 5. Bijbellezen kan leuk zijn
 
 **Bekijk de VIDEO**
 
@@ -60,7 +60,7 @@ _Wat vind je van de belofte dat de Bijbel troost en hoop kan geven?_
 - Volharden: Volharden in geloof en gedrag.
 - Troost en hoop: Voor eeuwig leven dat Jehova op aarde zal herstellen.
 
-### 6. Anderen kunnen je helpen de Bijbel te begrijpen
+## 6. Anderen kunnen je helpen de Bijbel te begrijpen
 
 **Lees Handelingen 8:26-31**
 
@@ -76,7 +76,7 @@ De keuze om de Bijbel te lezen moet altijd op vrijwillige basis plaatsvinden. Ik
 mij een bron van kracht, leven en wijsheid is. Tevens zou ik aangeven dat als de persoon in de toekomst wel
 belangstelling ervoor krijgt dat ik dan klaar sta voor een gesprek.
 
-### Overzichtsvragen
+## Overzichtsvragen
 
 _Wat voor advies vind je in de Bijbel?_
 
