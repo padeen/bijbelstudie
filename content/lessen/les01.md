@@ -15,8 +15,8 @@ draft: false
 _Hoe dacht de schrijver van deze psalm over de Bijbel?_
 
 Licht wordt geassocieerd met waarheid. Ook wordt het woord pad gebruikt, dat verwijst naar
-iets dat richting geeft en uiteindelijk leidt naar een doel. De schrijver ziet de Bijbel als een bron van
-waarheid en iets dat richting en doel geeft.
+iets dat richting geeft en uiteindelijk leidt naar een bestemming. De schrijver ziet de Bijbel als een bron van
+waarheid en iets dat richting geeft en naar een bestemming leidt.
 
 _Hoe denk jij over de Bijbel?_
 
