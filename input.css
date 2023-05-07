@@ -19,6 +19,10 @@
     @apply my-4;
   }
 
+  ul {
+    @apply mb-4;
+  }
+
   strong {
     @apply text-sky-900;
   }

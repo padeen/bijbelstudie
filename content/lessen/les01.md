@@ -4,7 +4,11 @@ date: 2023-05-07T09:54:42Z
 draft: false
 ---
 
+## 2. Wat kan de Bijbel in het dagelijks leven voor je betekenen?
+
 **Lees 2 Timotheüs 3:16**
+
+## 3. De Bijbel kan een gids voor je zijn
 
 **Lees Psalm 119:105**
 
@@ -72,9 +76,9 @@ SOMMIGEN ZEGGEN: ‘Het is zonde van je tijd om veel met de Bijbel bezig te zijn
 
 _Hoe zou je daarop reageren? Waarom?_
 
-De keuze om de Bijbel te lezen moet altijd op vrijwillige basis plaatsvinden. Ik zou uitleggen dat de Bijbel voor
-mij een bron van kracht, leven en wijsheid is. Tevens zou ik aangeven dat als de persoon in de toekomst wel
-belangstelling ervoor krijgt dat ik dan klaar sta voor een gesprek.
+De keuze om de Bijbel te lezen moet altijd op vrijwillige basis plaatsvinden. Ik zou aangeven dat de Bijbel een
+bron van kracht kan zijn. Tevens zou ik aanbieden om in gesprek te gaan als de persoon er in de toekomst wel
+belangstelling voor krijgt.
 
 ## Overzichtsvragen
 
