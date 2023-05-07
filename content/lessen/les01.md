@@ -66,6 +66,8 @@ _Wat vind je van de belofte dat de Bijbel troost en hoop kan geven?_
 
 _Wat kan je helpen om de Bijbel te begrijpen? (Zie vers 30 en 31.)_
 
+De Bijbel samen met anderen bestuderen.
+
 SOMMIGEN ZEGGEN: ‘Het is zonde van je tijd om veel met de Bijbel bezig te zijn.’
 
 _Hoe zou je daarop reageren? Waarom?_
