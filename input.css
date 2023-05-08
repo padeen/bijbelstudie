@@ -3,10 +3,6 @@
 @tailwind utilities;
 
 @layer base {
-  .header-text {
-    @apply mb-5 text-4xl font-semibold text-sky-900;
-  }
-
   h1 {
     @apply mb-5 py-1.5 text-4xl font-semibold text-sky-900;
   }
@@ -17,6 +13,10 @@
 
   p {
     @apply my-4;
+  }
+
+  p.header-text {
+    @apply mb-10 py-1.5 text-5xl font-semibold capitalize text-yellow-600;
   }
 
   ul {

@@ -458,6 +458,18 @@ p {
   margin-bottom: 1rem;
 }
 
+p.header-text {
+  margin-bottom: 2.5rem;
+  padding-top: 0.375rem;
+  padding-bottom: 0.375rem;
+  font-size: 3rem;
+  line-height: 1;
+  font-weight: 600;
+  text-transform: capitalize;
+  --tw-text-opacity: 1;
+  color: rgb(202 138 4 / var(--tw-text-opacity));
+}
+
 ul {
   margin-bottom: 1rem;
 }
@@ -613,10 +625,6 @@ strong {
 
 .mt-5 {
   margin-top: 1.25rem;
-}
-
-.mt-16 {
-  margin-top: 4rem;
 }
 
 .block {
