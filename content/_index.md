@@ -1,3 +1,1 @@
-Bijbelstudie
-
-- Voor eeuwig leven
+# Voor Eeuwig Gelukkig

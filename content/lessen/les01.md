@@ -62,7 +62,7 @@ _Wat vind je van de belofte dat de Bijbel troost en hoop kan geven?_
 
 - Leren: Leren hoe je tijdens je leven Jehova's goedkeuring kan ontvangen.
 - Volharden: Volharden in geloof en gedrag.
-- Troost en hoop: Voor eeuwig leven dat Jehova op aarde zal herstellen.
+- Troost en hoop: Voor eeuwig leven in het paradijs dat Jehova op aarde zal herstellen.
 
 ## 6. Anderen kunnen je helpen de Bijbel te begrijpen
 
