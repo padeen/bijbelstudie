@@ -74,20 +74,33 @@ _Vind je dat deze Bijbelteksten hoop geven? Denk je dat je familie en vrienden h
 
 _Tegen welk onrecht wilde Rafika vechten?_
 
+Zij wilde vechten tegen raciale ongelijkheid.
+
 _Hoe hielp de Bijbel haar, ook al bleef het onrecht dat ze zag bestaan?_
+
+Zij ontdekte tijdens een congres dat binnen de organisatie van Jehova iedereen gelijkwaardig is.
 
 **Lees Spreuken 17:22 en Romeinen 12:12**
 
 _Denk je dat de hoop die de Bijbel geeft, nu al verschil in je leven kan maken? Waarom?_
 
+Door de hoop die de Bijbel geeft krijg ik kracht om zo goed als mogelijk is met omstandigheden om te gaan.
+
 SOMMIGEN ZEGGEN: ‘Wat de Bijbel over de toekomst zegt, is te mooi om waar te zijn.’
 
 _Waarom denk je dat het belangrijk is om zelf de bewijzen te onderzoeken?_
+
+Door zelf door onderzoek vast te stellen dat wat de Bijbel zegt klopt versterk ik mijn geloof.
 
 ## Overzichtsvragen
 
 _Waarom hebben mensen hoop nodig?_
 
+Door hoop krijgen mensen kracht om met omstandigheden om te gaan. Daarnaast is het bewezen dat positieve gedachten
+een positief effect hebben op het immuunsysteem.
+
 _Wat zegt de Bijbel over de toekomst?_
 
 _Hoe kan een hoop voor de toekomst je nu al helpen?_
+
+Hoop helpt om positieve gedachten te cultiveren, waardoor ik sterk wordt.
