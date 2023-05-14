@@ -8,13 +8,19 @@ draft: false
 
 **Lees Jeremia 29:11, 12**
 
+Als wij Jehova aanroepen en tot hem bidden dan zal hij naar ons luisteren en ons vrede en hoop geven.
+
 ## 2. Wat voor toekomst belooft de Bijbel?
 
 **Lees Openbaring 21:4**
 
+De Bijbel belooft een toekomst zonder gehuil en pijn, en toekomst waar de dood er niet meer zal zijn.
+
 ## 3. Hoe kun je er zeker van zijn dat de beloften in de Bijbel zullen uitkomen?
 
 **Lees Handelingen 17:11**
+
+Door dagelijks de Schrift te bestuderen kun je voor jezelf vaststellen of wat er in staat echt waar is.
 
 ## 4. De Bijbel belooft dat we eeuwig kunnen leven in perfecte omstandigheden
 
@@ -37,6 +43,30 @@ draft: false
 **Lees Psalm 37:11**
 
 **Lees Psalm 37:29**
+
+_Hieronder vind je een lijst van beloften die in de Bijbel staan. Welke beloften spreken je vooral aan? Waarom?_
+
+**Jes. 33:24**
+
+Vergeving van onze zonden brengt ons terug in onze volmaakte toestand waarin ziekte niet bestaat.
+
+**Jes. 35:5,6**
+
+Mensen zullen het woord van Jehova begrijpen en uitspreken.
+
+**Jo. 5:28,29**
+
+Alle mensen die in de herinneringsgraven zijn zullen zijn stem horen en tevoorschijn komen.
+
+**Jes. 65:21,22**
+
+De uitverkorenen zullen volop genieten van het werk van hun handen.
+
+**Ps. 37:29**
+
+De rechtvaardigen zullen de aarde bezitten en ze zullen er eeuwig leven.
+
+_Vind je dat deze Bijbelteksten hoop geven? Denk je dat je familie en vrienden hier ook iets aan kunnen hebben?_
 
 ## 5. De hoop uit de Bijbel kan het verschil maken
 
