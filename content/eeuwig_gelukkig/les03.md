@@ -69,9 +69,18 @@ De plaats waar vroeger Babylon heeft gestaan bestaat nu nog steeds uit ruïnes.
 
 _Wat zegt de Bijbel over de situatie in de wereld tijdens de laatste dagen?_
 
+Mensen geven alleen om zichzelf en om geld. Er zullen oorlogen, voedseltekorten en aardbevingen zijn.
+
+**Timotheüs 3:1-5**
+
 _Hoe beschrijft de Bijbel het gedrag van mensen tijdens de laatste dagen?_
 
+De mensen zullen verwaand zijn en arrogant.
+
 _Vind je dat gedrag herkenbaar bij mensen in je omgeving?_
+
+Ja, mensen zien hun eigen opvattingen die zij hebben opgenomen uit hun omgeving als morele standaard.
+Zij baseren hun keuzes op winst en genot, in plaats van eerst Jehova te volgen.
 
 _Wat is volgens jou het duidelijkste bewijs dat de Bijbel betrouwbaar is?_
 
