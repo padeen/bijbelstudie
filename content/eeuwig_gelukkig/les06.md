@@ -1,5 +1,5 @@
 ---
-title: "Hoe is het leven ontstaan?"
+title: "06 Hoe is het leven ontstaan?"
 date: 2023-06-12T17:02:49Z
 draft: false
 ---
@@ -56,9 +56,6 @@ Er staat in de Bijbel dat Jehova hemel, aarde, licht en mensen heeft gemaakt.
 
 ## 5. Het scheppingsverhaal in de Bijbel is geloofwaardig
 
-Het verhaal in de Bijbel spreekt de evolutietheorie uit de wetenschap op bepaalde punten tegen. Ik geloof in het scheppingsverhaal
-omdat de Bijbel de hoogste autoriteit is.
-
 **VIDEO: Is het universum geschapen?**
 
 _Zegt de Bijbel dat de aarde en het leven erop in zes dagen van 24 uur gemaakt zijn?_
@@ -66,6 +63,9 @@ _Zegt de Bijbel dat de aarde en het leven erop in zes dagen van 24 uur gemaakt z
 Op de zesde dag werden de hemel en de aarde en alles wat daarbij hoort voltooid.
 
 _Vind je het scheppingsverhaal in de Bijbel logisch en geloofwaardig? Waarom wel of niet?_
+
+Het verhaal in de Bijbel spreekt de evolutietheorie uit de wetenschap op bepaalde punten tegen. Ik geloof in het scheppingsverhaal
+omdat de Bijbel de hoogste autoriteit is.
 
 _Wetenschappers zeggen dat het universum een begin heeft gehad. Klopt dat met wat je net in de Bijbel hebt gelezen?_
 
