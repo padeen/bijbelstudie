@@ -1,5 +1,5 @@
 ---
-title: "Wat voor God is Jehovah?"
+title: "07 Wat voor God is Jehovah?"
 date: 2023-06-19T09:14:13Z
 draft: false
 ---
