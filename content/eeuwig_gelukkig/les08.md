@@ -71,6 +71,8 @@ wij tijdens ons fysieke leven met tegenspoed te maken zullen krijgen, kunnen we 
 
 _Hoe heeft Jehovah de vrouw in de video geholpen om met negatieve gedachten en emoties om te gaan?_
 
+De belofte uit de Bijbel dat Jehova haar rechterhand zou pakken en haar zou helpen heeft haar opgebouwd.
+
 **Jesaja 41:10, 13**
 
 _Wat belooft Jehovah voor al zijn vrienden te doen?_
@@ -97,6 +99,11 @@ Via zijn Woord de Bijbel.
 **SOMMIGEN ZEGGEN: ‘Het is niet mogelijk om een vriend van God te zijn.’**
 
 _Welke Bijbeltekst zou je gebruiken om te laten zien dat we wel Jehovah’s vriend kunnen zijn?_
+
+**Psalm 25:14**
+
+Wie ontzag hebben voor Jehovah krijgen een hechte vriendschap met hem
+en hij maakt ze vertrouwd met zijn verbond.
 
 ## Overzichtsvragen
 
