@@ -47,22 +47,41 @@ Door het voorbeeld gebed te gebruiken uit Mattheüs 6:9-15.
 
 _Je problemen gaan niet altijd weg als je bidt. Hoe kan bidden je toch helpen?_
 
+Bidden geeft rust en kalmte om problemen aan te kunnen.
+
 _Wat zijn een paar dingen waar jij om zou willen bidden?_
+
+Ik blijf vragen om inzicht.
 
 ## 7. Maak tijd om te bidden
 
 _Hoe maakte Jezus tijd om te bidden?_
 
+Jezus zocht een afgelegen plek op om ongestoord te kunnen bidden.
+
 _Wanneer zou jij daar tijd voor kunnen maken?_
+
+In de ochtend na het opstaan, voor en na het lezen van de Bijbel, in de avond voor het slapen gaan.
 
 **SOMMIGEN ZEGGEN: ‘Bidden is gewoon een manier om je beter te voelen.’**
 
 _Wat zou je daarop zeggen?_
 
+Bidden is communiceren met Jehova, de hoorder van gebeden. Naast dat je rust en kalmte krijgt, geeft
+Jehova gul en zonder verwijt wijsheid aan hen die daarom blijven vragen.
+
 ## Overzichtsvragen
 
 _Tot wie moet je bidden?_
 
+Wij bidden tot onze Vader in de hemel Jehova.
+
 _Hoe moet je bidden?_
 
+Je kunt op elke manier bidden als het maar rechtstreeks uit je hart komt en het eerbiedig is. In het
+voorbeeld van Jezus zien wij dat hij een afgelegen plek opzoekt zodat hij ongestoord kan bidden.
+
 _Wat kan het gebed voor je betekenen?_
+
+Bidden is communicatie met Jehova. Het geeft rust, kalmte en inzicht om volgens Bijbelse principes met
+problemen om te gaan.
