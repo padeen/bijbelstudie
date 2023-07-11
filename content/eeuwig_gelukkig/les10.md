@@ -55,11 +55,18 @@ Omdat de reis te voet, door bergachtig gebied moest worden afgelegd.
 
 _Waarom vraagt het misschien inspanning van jou om naar de bijeenkomsten te gaan?_
 
+Omdat ik er elke week tijd voor moet vrij maken om twee keer naar de zaal te gaan.
+
 _Denk je dat het de moeite waard is? Waarom?_
+
+Het is moeite waard. Elke keer als ik niet naar de zaal geweest ben dan mis ik de aanmoedigingen van de broeders en
+zusters uit de gemeente.
 
 **Hebreeën 10:24, 25**
 
 _Waarom moeten we geregeld naar de bijeenkomsten gaan?_
+
+We moeten elkaar blijven aanmoedigen zodat wij op de dag des oordeels gered kunnen worden.
 
 **SOMMIGEN ZEGGEN:** ‘Je hoeft niet met anderen samen te komen. Geloof is iets persoonlijks. Je kunt je ook thuis in de Bijbel verdiepen.’
 
@@ -69,6 +76,20 @@ _Welke Bijbeltekst of welk Bijbels voorbeeld laat zien wat Jehovah wil?_
 
 _Waarom moedigt Jehovah ons aan om bij elkaar te komen?_
 
+Naast dat wij Jehova individueel eren via het gebed en door ons gedrag komen wij ook bij elkaar om Jehova gezamenlijk te aanbidden en om
+elkaar aan te moedigen.
+
 _Wat kun je leren op de bijeenkomsten van Jehovah’s Getuigen?_
 
+Door middel van het volgen van de gemeentelijkebijbelstudie en de wachttorenstudie leer ik wat de Bijbel echt betekend. Ik krijg uitleg en
+toelichting en ik kan zelf controleren of wat er gezegd wordt ook echt in de Bijbel staat.
+
+**Handelingen 17:10, 11**
+
+De broeders stuurden Paulus en Silas diezelfde nacht nog naar Bere̱a. Toen ze daar waren aangekomen, gingen ze naar de synagoge van de Joden.
+Die hadden een betere instelling dan die in Thessaloni̱ka, want ze aanvaardden het woord heel bereidwillig en ze bestudeerden dagelijks de
+Schrift om te zien of het echt zo was.
+
 _Welke andere voordelen heeft het volgens jou om naar de bijeenkomsten te gaan?_
+
+Je krijgt nieuwe sociale contacten erbij waarmee ik in de toekomst samen in de velddienst kan gaan.
