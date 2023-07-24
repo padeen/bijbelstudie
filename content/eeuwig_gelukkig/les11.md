@@ -1,5 +1,5 @@
 ---
-title: "Hoe haal je zo veel mogelijk uit Bijbellezen?"
+title: "11 Hoe haal je zo veel mogelijk uit Bijbellezen?"
 date: 2023-07-19T13:43:18Z
 draft: false
 ---
