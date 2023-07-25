@@ -36,9 +36,16 @@ Jehova dienen, werk, vrienden en familie, gezondheid.
 
 _Hoe kun je prioriteit geven aan je studie van de Bijbel?_
 
+Door studie op eerste plaats te zetten weet je zeker dat je genoeg tijd er voor hebt. Op dit moment
+staat studie nog niet op de eerste plaats, maar op een gedeelde plaats met andere dingen die ook
+belangrijk zijn.
+
 **Mattheüs 5:3**
 
 _Welke voordelen heeft het om prioriteit te geven aan je studie van de Bijbel?_
+
+Door studie prioriteit te geven bouw je een betere band op met Jehova waardoor je hem echt leert kennen en waardoor je
+beter in staat bent om te leven volgens zijn normen en waarden.
 
 ## 5. Hou vol ondanks tegenstand
 
@@ -68,11 +75,17 @@ Je moet op een vriendelijke en geduldige manier uitleggen waarom je Bijbelstudie
 
 _Welke veranderingen bracht Jim aan om Jehovah’s wil te doen?_
 
+Jim heeft zijn uiterlijk, taal en gedrag veranderd en hij heeft uiteindelijk besloten om getuigen van Jehova te worden.
+
 _Wat vind je mooi aan zijn verhaal?_
+
+De verandering van Jim was voor mensen in zijn omgeving een getuigenis.
 
 **Hebreeën 11:6**
 
 _Wat zal Jehovah doen voor personen die ‘hem echt zoeken’, dat wil zeggen personen die echt hun best doen om hem te leren kennen en blij te maken?_
+
+Hij zal de mensen die hem echt zoeken belonen door het paradijs op aarde te herstellen en hen er voor eeuwig op te laten leven.
 
 _Als je deze Bijbeltekst leest, denk je dan dat Jehovah blij is als hij ziet hoeveel moeite je doet om de Bijbel te bestuderen? Waarom denk je dat?_
 
@@ -89,6 +102,8 @@ innerlijke rust waardoor ik mij goed kan concentreren op wat ik belangrijk vind.
 ## Overzichtsvragen
 
 _Waarom zijn de waarheden uit de Bijbel kostbaar voor jou?_
+
+De waarheden uit de Bijbel geven mij inzicht bij het nemen van beslissingen en kracht en hoop om met situaties om te gaan.
 
 _Hoe kun je ‘vaststellen wat echt belangrijk is’?_
 
