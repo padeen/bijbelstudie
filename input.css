@@ -15,15 +15,15 @@
     @apply my-4;
   }
 
-  p.header-text {
-    @apply mb-10 py-1.5 text-5xl font-semibold capitalize text-yellow-600;
-  }
-
   ul {
     @apply mb-4;
   }
 
   strong {
     @apply text-sky-900;
+  }
+
+  .header-text {
+    @apply mb-10 py-1.5 text-5xl font-semibold capitalize text-yellow-600;
   }
 }
