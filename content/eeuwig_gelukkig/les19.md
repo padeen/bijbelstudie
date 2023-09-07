@@ -29,7 +29,7 @@ door de waarheid te verkondigen.
 
 **1 Petrus 2:17**
 
-Door naastenliefde te tonen aan onze broeders en zusters binnen de gemeente en aan alle mensen buiten de gemeente.
+Door naastenliefde te tonen aan onze medemens.
 
 ## 4. We baseren onze geloofsovertuiging op de Bijbel
 
@@ -51,12 +51,49 @@ Zij controleerden of kerkelijke leerstellingen in overeenstemming waren met wat 
 
 _Waarom is de naam Jehovah’s Getuigen passend?_
 
+Omdat de Jehova's getuigen in dienst van Jehova getuigenis geven van de waarheid.
+
 **Leviticus 26:1**
 
 _Hoe denkt Jehovah volgens deze Bijbeltekst over het gebruik van beelden?_
+
+Jehova keurt het gebruik van beelden af omdat beelden hem niet kunnen vertegenwoordigen. Jehova eist
+volledige toewijding.
 
 **Johannes 20:17**
 
 _Zijn God en Jezus volgens deze Bijbeltekst dezelfde persoon?_
 
+Jezus zegt dat hij nog niet naar de Vader is opgestegen.
+
 _Wat vind je ervan dat Jehovah zijn Getuigen eropuit stuurt om de waarheid over hem en zijn Zoon bekend te maken?_
+
+Het laat zien dat Jehova nog zoveel mogelijk mensen wilt redden.
+
+## 6. We houden van elkaar
+
+_Hoe zouden echte christenen moeten reageren als geloofsgenoten het moeilijk hebben?_
+
+_Welke voorbeelden van liefde heb jij gezien onder Jehovah’s Getuigen?_
+
+Ook ben ik afwezig in de zaal, de studie gaat altijd door.
+
+**VIDEO:** Haïti getroffen door orkaan Matthew\*\*
+
+_Hoe tonen Jehovah’s Getuigen liefde na rampen?_
+
+**SOMMIGEN ZEGGEN:** ‘Jehovah’s Getuigen zijn een nieuwe religie.’
+
+_Sinds wanneer noemt Jehovah zijn aanbidders getuigen?_
+
+## Overzichtsvragen
+
+_Waarom hebben we de naam Jehovah’s Getuigen aangenomen?_
+
+Omdat de Jehova's getuigen in dienst van Jehova getuigenis geven van de waarheid.
+
+_Hoe laten we zien dat we van elkaar houden?_
+
+_Denk je dat Jehovah’s Getuigen echte christenen zijn?_
+
+Tekst lezen waarin de discipelen voor het eerst Christenen worden genoemd.
