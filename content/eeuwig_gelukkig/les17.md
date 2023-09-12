@@ -47,11 +47,19 @@ Door je aan God's Wet te houden en zijn naam bekend te maken laat je zien dat je
 
 _Hoe blijkt uit dit verslag dat Jezus om mensen gaf?_
 
+Jezus gaf de mensen onderwijs. Hij gaf de mensen eten in overvloed.
+
 _Wat motiveerde Jezus om mensen te helpen?_
+
+Jezus had medelijden met de mensen.
 
 _Jezus heeft dezelfde eigenschappen als Jehovah. Dus wat leert dit verslag je over Jehovah?_
 
+Het leert dat Jehova medelijden heeft met mensen.
+
 _Wat zijn een paar manieren waarop je net als Jezus kunt laten zien dat je om mensen geeft?_
+
+Door mensen te helpen, zonder er iets voor terug te vragen. Door mensen over de waarheid te vertellen.
 
 ## 6. Jezus is vrijgevig
 
@@ -59,18 +67,32 @@ _Wat zijn een paar manieren waarop je net als Jezus kunt laten zien dat je om me
 
 _Hoe kun je volgens Jezus gelukkig zijn?_
 
+Door aan anderen te geven.
+
 **VIDEO:** ‘Geven maakt gelukkiger’
 
 _Wat zijn een paar manieren waarop we kunnen geven, ook al hebben we niet veel?_
+
+Door elkaar aan te moedigen, door een inspanning voor iemand te doen, bijvoorbeeld door te helpen met naar
+de winkel gaan. Door anderen over de waarheid te vertellen.
 
 **SOMMIGEN ZEGGEN:** ‘Het kan God niets schelen dat we het moeilijk hebben.’
 
 _Jezus heeft dezelfde eigenschappen als zijn Vader. Dus hoe blijkt uit wat Jezus deed dat Jehovah om ons geeft?_
 
+Jezus hielp de mensen omdat hij medelijden met hen had. Deze eigenschappen heeft hij van zijn Vader Jehovah, dus
+hierdoor kunnen weten dat Jehova ook om mensen geeft.
+
 ## Overzichtsvragen
 
 _Hoe kun je net als Jezus laten zien dat je van Jehovah houdt?_
 
+Door anderen over de waarheid te vertellen.
+
 _Hoe kun je net als Jezus laten zien dat je van mensen houdt?_
 
+Door andere mensen te helpen, zonder er iets voor terug te krijgen.
+
 _Wat spreekt jou het meest aan in Jezus’ persoonlijkheid?_
+
+Dat hij, net zoals zijn Vader Jehovah, onpartijdig is. Hij helpt iedereen die tot hem toenadert.
