@@ -29,7 +29,7 @@ door de waarheid te verkondigen.
 
 **1 Petrus 2:17**
 
-Door naastenliefde te tonen aan onze medemens.
+Door liefde te hebben voor de hele broederschap. In onderdeel 6 wordt hier een voorbeeld van getoond.
 
 ## 4. We baseren onze geloofsovertuiging op de Bijbel
 
@@ -43,7 +43,8 @@ De kennis van God's Woord.
 
 _Hoe gingen Charles Russell en andere Bijbelonderzoekers te werk bij het bestuderen van de Bijbel?_
 
-Zij controleerden of kerkelijke leerstellingen in overeenstemming waren met wat er in de Bijbel staat.
+Zij bestudeerden de Bijbel en controleerden of kerkelijke leerstellingen in overstemming waren met wat er
+in de Bijbel staat.
 
 ## 5. We getuigen van onze God
 
@@ -74,17 +75,24 @@ Het laat zien dat Jehova nog zoveel mogelijk mensen wilt redden.
 
 _Hoe zouden echte christenen moeten reageren als geloofsgenoten het moeilijk hebben?_
 
+Zij voelen mee als geloofsgenoten lijden.
+
 _Welke voorbeelden van liefde heb jij gezien onder Jehovah’s Getuigen?_
 
-Ook ben ik afwezig in de zaal, de studie gaat altijd door.
+Ook als ik afwezig ben in de zaal, dan studie gaat nog steeds door.
 
 **VIDEO:** Haïti getroffen door orkaan Matthew\*\*
 
 _Hoe tonen Jehovah’s Getuigen liefde na rampen?_
 
+Mensen worden geholpen om in hun noodzakelijke levensbehoeften te kunnen voorzien. In de video worden voorbeelden
+gegeven zoals een bed of tenten om onderdak te bieden. Zij steunen elkaar om hoop te hebben voor de toekomst.
+
 **SOMMIGEN ZEGGEN:** ‘Jehovah’s Getuigen zijn een nieuwe religie.’
 
 _Sinds wanneer noemt Jehovah zijn aanbidders getuigen?_
+
+In de tijd van Jesaja noemde Jehova zijn aanbidders al getuigen.
 
 ## Overzichtsvragen
 
@@ -94,6 +102,8 @@ Omdat de Jehova's getuigen in dienst van Jehova getuigenis geven van de waarheid
 
 _Hoe laten we zien dat we van elkaar houden?_
 
+Door elkaar te blijven steunen, door studie te geven en door hulp te bieden tijdens rampen.
+
 _Denk je dat Jehovah’s Getuigen echte christenen zijn?_
 
-Tekst lezen waarin de discipelen voor het eerst Christenen worden genoemd.
+**Johannes 8:31**
