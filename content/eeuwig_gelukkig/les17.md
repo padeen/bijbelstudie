@@ -67,7 +67,7 @@ Door mensen te helpen, zonder er iets voor terug te vragen. Door mensen over de 
 
 _Hoe kun je volgens Jezus gelukkig zijn?_
 
-Door aan anderen te geven.
+Door te geven.
 
 **VIDEO:** ‘Geven maakt gelukkiger’
 

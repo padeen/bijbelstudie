@@ -51,6 +51,9 @@ Jehovah weet dat het ons als onvolmaakte mensen nooit lukt om ons aan al zijn we
 
 _6. Wat zijn een paar dingen waarover je tot Jehovah hebt gebeden? Waarover zou je nog meer kunnen bidden?_
 
+Ik heb gebeden om zaalbezoek weer op te pakken. Ik heb ook in gebed tegen Jehovah gezegd dat zal aanvaarden
+wat ik tijdens mijn leven krijg.
+
 _Hoe verhoort Jehovah gebeden?_
 
 Jehovah beantwoord onze gebeden door middel van zijn Woord de Bijbel en via zijn wereldwijde gemeente van
@@ -65,11 +68,15 @@ en zusters uit de gemeente.
 
 _Denk je dat het de moeite waard is om die bijeenkomsten te bezoeken?_
 
+Door de persoonlijk bijdragen van de broeders en zusters haal je meer uit de tekst dan dat je het alleen leest.
+
 _8. Waarom is het goed om geregeld in de Bijbel te lezen? Op welk moment van de dag lukt het jou om in de Bijbel te lezen?_
 
-Voordat ik begin met werken lukt het mij om de Bijbel te lezen.
+Lezen in de Bijbel geeft rust, kracht en hoop. Na de Bijbelstudie lukt het mij het best om Bijbel te lezen.
 
 _9. Wat vond je tot nu toe het mooist aan je Bijbellessen?_
+
+Ik heb tijdens verlies binnen de familie kunnen ervaren dat de Bijbel rust, kracht en hoop geeft.
 
 _10. Met wat voor uitdagingen heb je te maken gekregen sinds je de Bijbel bestudeert? Wat kan je helpen om door te gaan met je Bijbelcursus?_
 
