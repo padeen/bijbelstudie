@@ -36,3 +36,5 @@ _Wat voor leider is Jezus, en hoe wil hij graag dat we ons voelen?_
 Jezus is een zachtaardige en nederige leider. Hij wilt dat we ons gesterkt voelen.
 
 **VIDEO:** Ouderlingen bieden hulp na aardbeving in Nepal
+
+
