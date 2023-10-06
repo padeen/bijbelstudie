@@ -16,7 +16,7 @@ Door goed te luisteren kan ik een aanknopingspunt ontdekken.
 
 **Lukas 10:1, 17**
 
-Als ik geestelijk voldoende ben gegroeid dan zou ik dat mezelf ten doel stellen.
+Omdat de volgelingen van Jezus er twee aan twee op uit werden gestuurd, willen wij dat voorbeeld navolgen.
 
 ## 3. Jehovah zal je helpen
 
@@ -30,7 +30,7 @@ Zij vroegen in gebed om moed.
 
 _Waarom is het goed om te bidden als je ertegen opziet om te prediken?_
 
-Jehovah zal je helpen als om hulp vraagt voor de prediking.
+Jehovah zal ons helpen als wij om hulp vragen voor de prediking.
 
 ## 4. Toon respect
 
@@ -40,7 +40,7 @@ Jehovah zal je helpen als om hulp vraagt voor de prediking.
 
 _Hoe kun je die teksten toepassen als je met anderen over de Bijbel praat?_
 
-Door goed te luisteren kun je iets vinden uit de Bijbel waar iemand belangstelling voor heeft.
+Door mensen de Bijbel te laten lezen en door samen te bespreken wat zij hebben gelezen.
 
 _Misschien zijn sommige vrienden of familieleden het niet met je eens. Wat zou je kunnen doen? Wat kun je beter niet doen?_
 
@@ -58,21 +58,25 @@ gaat het er niet om dat je zoveel mogelijk zelf aan het woord bent. Het doel is 
 
 _Goed voedsel houdt je in leven en maakt je gelukkig. Waarom vergeleek Jezus het doen van Gods wil, waaronder het prediken van het goede nieuws, met het eten van voedsel?_
 
+Het doen van Jehovah's wil leidt tot eeuwig leven.
+
 _Op welke manieren geeft het delen van het goede nieuws vreugde?_
 
 **MISSCHIEN VRAAGT IEMAND:** ‘Heb je nog wat leuks gedaan?’
 
 _Hoe zou je die gelegenheid kunnen gebruiken om te vertellen wat je tijdens je Bijbelcursus geleerd hebt?_
 
+Ik zou vertellen over hoe Bijbelstudie mij heeft geleerd hoe ik op een liefdevolle manier met mijn huisgenootje om kan gaan.
+
 ## Overzichtsvragen
 
 _Waarom zou je het goede nieuws met anderen delen?_
 
-Doordat je hart overstroomt van vreugde. Omdat Jehovah het aan ons vraagt.
+Doordat je hart overstroomt van liefde voor de waarheid. Omdat wij Jezus voorbeeld navolgen.
 
 _Hoe kun je daarbij respect voor mensen tonen?_
 
-Door te proberen om iets uit de Bijbel te vertellen waar iemand belangstelling voor heeft. Dit begint met goed luisteren.
+Door iemand zelf iets uit de Bijbel te laten lezen en er daarna samen over te praten.
 
 _Als je ertegen opziet om te prediken, hoe kun je dat gevoel dan overwinnen?_
 
