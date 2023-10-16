@@ -29,8 +29,7 @@ van Jehovah's wil de hoogste prioriteit in je leven.
 
 **Kolossenzen 1:9, 10**
 
-Zijn geloof en gedrag moeten overeenkomstig zijn met Jehovah's wil. Dit betekent dat iemand zich houdt
-aan Jehovah's wetten en de wil heeft om het goede nieuws te verkondigen.
+Hij moet geloven dat Jehovah de enige ware God is. Hij moet zich houden aan Jehovah's wetten en de wil hebben om het goede nieuws te verkondigen.
 
 ## 4. Wat je van Jezus’ doop kunt leren
 
@@ -38,13 +37,19 @@ aan Jehovah's wetten en de wil heeft om het goede nieuws te verkondigen.
 
 _Was Jezus een baby toen hij gedoopt werd?_
 
+Jezus was ongeveer 30 jaar toen hij met zijn werk begon. Kort daarvoor heeft zijn doop plaatsgevonden.
+
 _Hoe werd hij gedoopt? Werd hij gewoon met water besprenkeld?_
+
+In de tekst staat dat hij uit het water omhoog kwam, dus hij moet met zijn lichaam in het water gestaan hebben.
 
 **Lukas 3:21-23**
 
 **Johannes 6:38**
 
 _Welk werk kwam voor Jezus op de eerste plaats nadat hij gedoopt was?_
+
+Het verkondigen van de komst van God's koninkrijk kwam voor Jezus op de eerste plaats.
 
 ## 5. De doop is een haalbaar doel
 
@@ -56,6 +61,9 @@ _Welk werk kwam voor Jezus op de eerste plaats nadat hij gedoopt was?_
 
 _Wat kan je helpen om je voor te bereiden op de doop?_
 
+Een sterke band met Jehovah opbouwen door zijn woord te bestuderen en door geregeld de bijeenkomsten
+bij te wonen.
+
 ## 6. Door je doop ga je bij Jehovah’s gezin horen
 
 **Psalm 25:14**
@@ -64,14 +72,28 @@ _Wat kan je helpen om je voor te bereiden op de doop?_
 
 _Welk effect heeft de doop op iemands band met Jehovah en met anderen die Hem aanbidden?_
 
+Door ontzag te hebben voor Jehovah krijg je een hechte band met hem.
+
 **SOMMIGEN ZEGGEN:** ‘Ik ben er nog niet klaar voor om gedoopt te worden.’
 
 _Heb jij dat gevoel ook? Vind je wel dat de doop een mooi doel is?_
+
+Ik zie de doop als een belangrijke stap, maar er gaat nog wel studie aan vooraf voordat ik mezelf kan opdragen
+om gedoopt te worden.
 
 ## Overzichtsvragen
 
 _Wat houdt de doop in, en waarom is de doop belangrijk?_
 
+Het laat zien dat je gelooft dat Jehovah de enige ware God is. Dat je zijn wetten naleeft en dat je met andere mensen
+over het goede nieuws wilt praten.
+
 _Wat is het verband tussen de opdracht en de doop?_
 
+Met de doop laat je zien dat je de rest van je leven wilt toewijden aan het bekendmaken van het goede nieuws.
+
 _Welke stappen leiden tot opdracht en doop?_
+
+Door een God's woord te bestuderen en door geregeld bijeen te komen met de gemeente bouw je een sterke band op met
+Jehovah. Dit leidt er uiteindelijk toe dat je jezelf voor altijd aan Jehovah opdraagt en dat je het goede nieuws bekend
+wilt maken.
