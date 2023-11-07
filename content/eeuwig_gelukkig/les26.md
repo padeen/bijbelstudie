@@ -91,6 +91,9 @@ Het vooruitzicht van het paradijs op aarde geeft ons kracht om door de moeilijke
 
 **SOMMIGEN ZEGGEN:** ‘God laat ons lijden ondergaan om ons te testen.’
 
+God weet al dat het ons zonder zijn bestuur niet zal lukken om gelukkig te zijn. Daarvoor hoeft hij ons
+niet te testen. Het is Satan's verantwoordelijkheid dat wij tegen God in opstand zijn gekomen en nu lijden.
+
 ## Overzichtsvragen
 
 _Welke leugen vertelde Satan aan Eva?_
