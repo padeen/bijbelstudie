@@ -34,7 +34,7 @@ Hij verloor de mogelijkheid om voor eeuwig in het paradijs op aarde te leven.
 
 _Welke gevolgen heeft Adams zonde voor jou?_
 
-Door Adams zonde ben ik belast met de erfzonde, waardoor ik sterfelijk ben.
+Door Adams zonde ben ik belast met de erfzonde, waardoor ik sterfelijk en onvolmaakt ben.
 
 **Johannes 3:16**
 
@@ -48,9 +48,13 @@ God stuurde uit liefde voor de mens zijn Zoon naar de aarde opdat wij gered kunn
 
 _Hoe kan de dood van één man tot voordeel zijn van alle mensen?_
 
+Doordat Jezus volmaakt was kon hij zijn leven opofferen als losprijs voor de zonden van alle mensen.
+
 **1 Timotheüs 2:5, 6**
 
 _Adam was een volmaakt mens, maar als gevolg van zijn zonde zondigen en sterven alle mensen. Jezus was ook een volmaakt mens. In welk opzicht voorzag hij in ‘een overeenkomstige losprijs’?_
+
+Doordat Adam volmaakt was op het moment dat hij ervoor koos om te zondigen, kan zijn schuld alleen door een volmaakt leven worden afgelost.
 
 ## 5. De losprijs is een geschenk van Jehovah aan jou
 
@@ -58,13 +62,21 @@ _Adam was een volmaakt mens, maar als gevolg van zijn zonde zondigen en sterven 
 
 _Hoe blijkt uit de woorden van de apostel Paulus dat hij de losprijs zag als een geschenk aan hem persoonlijk?_
 
+Hij zegt dat Christus zich voor hem heeft overgegeven.
+
 **Johannes 19:1-7, 16-18**
 
 _Wat vind je van wat Jehovah en Jezus voor jou hebben gedaan?_
 
+Uit de daad van barmhartigheid blijkt hoe groot de liefde van Jehovah en Jezus Christus voor ons mensen is. Door te beseffen wat Jehovah en Jezus voor mij
+hebben gedaan wordt het voor mij makkelijker om mij aan Jehovah's wet te houden en zijn wil te doen.
+
 **MISSCHIEN VRAAGT IEMAND:** ‘Hoe kunnen alle mensen gered worden door de dood van één mens?’
 
 _Wat zou je daarop zeggen?_
+
+Doordat Jezus zijn volmaakte leven heeft opgeofferd, kunnen alle mensen via hem vergeving voor hun onvolmaaktheid krijgen van Jehovah God.
+Daardoor hebben wij de mogelijkheid gekregen om voor eeuwig te leven in het paradijs dat God op aarde zal herstellen.
 
 ## Overzichtsvragen
 
@@ -74,6 +86,9 @@ Jezus moest sterven als losprijs voor onze zonden, opdat wij gered kunnen worden
 
 _In welk opzicht was Jezus’ volmaakte menselijke leven een overeenkomstige losprijs?_
 
+Omdat Adam en Eva volmaakte mensen waren die bewust hebben gekozen om God te ongehoorzamen moet hun zonde met een volmaakt leven worden
+terugbetaald.
+
 _Welke voordelen heeft Jezus’ dood voor jou?_
 
-Door het offer van Jezus krijg ik de mogelijkheid om vergeving te krijgen voor mijn zonden.
+Door het offer van Jezus krijg ik de mogelijkheid om vergeven te worden voor mijn zonden.
