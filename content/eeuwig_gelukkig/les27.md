@@ -68,8 +68,8 @@ Hij zegt dat Christus zich voor hem heeft overgegeven.
 
 _Wat vind je van wat Jehovah en Jezus voor jou hebben gedaan?_
 
-Uit de daad van barmhartigheid blijkt hoe groot de liefde van Jehovah en Jezus Christus voor ons mensen is. Door te beseffen wat Jehovah en Jezus voor mij
-hebben gedaan wordt het voor mij makkelijker om mij aan Jehovah's wet te houden en zijn wil te doen.
+Uit hun daad van barmhartigheid blijkt hoe groot de liefde van Jehovah en Jezus Christus voor mij is. Door te beseffen hoeveel zij voor mij
+hebben gedaan wordt het voor makkelijker om me aan Jehovah's wetten te houden en zijn wil te doen.
 
 **MISSCHIEN VRAAGT IEMAND:** ‘Hoe kunnen alle mensen gered worden door de dood van één mens?’
 
