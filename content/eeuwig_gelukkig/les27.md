@@ -1,5 +1,5 @@
 ---
-title: "Hoe kan Jezus’ dood ons redden?"
+title: "27 Hoe kan Jezus’ dood ons redden?"
 date: 2023-11-08T15:53:50Z
 draft: false
 ---
