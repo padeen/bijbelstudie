@@ -52,17 +52,32 @@ _Wat zijn de gevolgen van menselijk bestuur?_
 
 **Prediker 8:9**
 
-Vind je dat Gods Koninkrijk menselijke regeringen zou moeten vervangen? Waarom? 6. Gods Koninkrijk heeft regeerders die ons begrijpen
-Hebreeën 4:15
-Openbaring 5:9
-Vind je het een geruststelling dat Jezus en zijn mederegeerders weten hoe het is om als mens te leven? Waarom? 7. Gods Koninkrijk heeft de beste wetten
-1 Korinthiërs 6:9-11
-Hoe denk je dat de wereld eruit zal zien als iedereen naar Gods gedragsregels leeft? a
-Vind je het redelijk dat Jehovah van onderdanen van het Koninkrijk verwacht dat ze naar die regels leven? Waarom?
-Waaruit blijkt dat mensen die zich niet aan die wetten houden, kunnen veranderen? (Zie vers 11.)
-vers 11
-Wat zou je daarop zeggen?
-Overzichtsvragen
-Wie zijn de regeerders van Gods Koninkrijk?
-Waarom is Gods Koninkrijk beter dan welke menselijke regering maar ook?
-Wat zijn een paar dingen die Jehovah verwacht van onderdanen van het Koninkrijk?
+_Vind je dat Gods Koninkrijk menselijke regeringen zou moeten vervangen? Waarom?_
+
+## 6. Gods Koninkrijk heeft regeerders die ons begrijpen
+
+**Hebreeën 4:15**
+
+**Openbaring 5:9**
+
+_Vind je het een geruststelling dat Jezus en zijn mederegeerders weten hoe het is om als mens te leven? Waarom?_
+
+## 7. Gods Koninkrijk heeft de beste wetten
+
+**1 Korinthiërs 6:9-11**
+
+_Hoe denk je dat de wereld eruit zal zien als iedereen naar Gods gedragsregels leeft? a_
+
+_Vind je het redelijk dat Jehovah van onderdanen van het Koninkrijk verwacht dat ze naar die regels leven? Waarom?_
+
+_Waaruit blijkt dat mensen die zich niet aan die wetten houden, kunnen veranderen? (Zie vers 11.)_
+
+_Wat zou je daarop zeggen?_
+
+## Overzichtsvragen
+
+_Wie zijn de regeerders van Gods Koninkrijk?_
+
+_Waarom is Gods Koninkrijk beter dan welke menselijke regering maar ook?_
+
+_Wat zijn een paar dingen die Jehovah verwacht van onderdanen van het Koninkrijk?_
