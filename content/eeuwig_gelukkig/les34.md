@@ -10,11 +10,16 @@ draft: false
 
 **Romeinen 6:17**
 
+Door vanuit je hart Jehovah's wetten na te leven.
+
 ## 2. Waarom is het soms een uitdaging om je liefde voor Jehovah te tonen?
 
 **Psalm 34:19**
 
 **Psalm 4:3**
+
+We kunnen te maken krijgen met externe factoren zoals materiële problemen of vervolging. Daarnaast
+moeten we vanwege onze onvolmaaktheid ook voortdurend het verstand laten winnen over de drang.
 
 ## 3. Een kwestie waar jij bij betrokken bent
 
