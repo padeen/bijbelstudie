@@ -3,6 +3,8 @@ require "nokogiri"
 
 url = ARGV.first
 
+puts "Fetching document, might take more than 20 seconds."
+
 eeuwig_doc = Nokogiri.HTML(URI.open(url))
 
 matchy = url.match(/les-(\d+)/)
@@ -21,6 +23,8 @@ eeuwig_content = eeuwig_doc.css("h3, li > p, a.jsBibleLink").map do |content|
   end
 end
 
+eeuwig_content.each {|content| puts(content); puts}
+
 File.open("../content/eeuwig_gelukkig/les#{lesson_number}.md", "a") do |document|
   document.puts <<HEREDOC
 ---
@@ -32,4 +36,6 @@ HEREDOC
 
 eeuwig_content.each {|content| document.puts(content); document.puts}
 end
+
+puts "Content written to les#{lesson_number}.md"
 
