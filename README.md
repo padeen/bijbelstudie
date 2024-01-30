@@ -40,10 +40,10 @@ Run commands manually inside throwaway container
 docker-compose run --rm -p 1313:1313 hugo bash
 ```
 
-Start throwaway container and grab HTML for eeuwig gelukkig les 35 from JW.org and create content in markdown
+Start throwaway container and grab HTML for eeuwig gelukkig les 56 from JW.org and create content in markdown
 
 ```
-docker-compose run --rm ruby ruby grap-eeuwig.rb https://www.jw.org/nl/bibliotheek/boeken/voor-eeuwig-gelukkig/deel-3/les-56/
+docker-compose run --rm ruby ruby grap-eeuwig.rb https://www.jw.org/nl/bibliotheek/boeken/voor-eeuwig-gelukkig/deel-4/les-56/
 ```
 
 ## Deployment instructions for Vercel
